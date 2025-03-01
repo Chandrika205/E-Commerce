@@ -6,7 +6,7 @@
 
 ![WhatsApp Image 2025-03-01 at 15 05 03_7a7d529c](https://github.com/user-attachments/assets/7c773fac-6bb9-4b0c-a88b-64735b079a5a)
 
-![Uploading WhatsApp Image 2025-03-01 at 15.05.27_54898820.jpg…]()
+![WhatsApp Image 2025-03-01 at 15 05 27_83a6c577](https://github.com/user-attachments/assets/575c19b9-be40-4dbf-9099-97fdaabe59d4)
 
 ![WhatsApp Image 2025-03-01 at 15 06 06_3674bdf9](https://github.com/user-attachments/assets/54f266ae-7c42-4f70-ad4b-6fe9e881ce6a)
 
